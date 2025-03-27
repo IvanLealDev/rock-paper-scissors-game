@@ -9,4 +9,4 @@
 ![Screenshot 1](https://i.imgur.com/DdVOwns.png)
 ![Screenshot 2](https://i.imgur.com/jNdYinL.png)
 ![Screenshot 3](https://i.imgur.com/51IoMAb.png)
-![Screenshot 4](https://i.imgur.com/t0oSfvv.png)|
+![Screenshot 4](https://i.imgur.com/t0oSfvv.png)
